@@ -1,0 +1,5 @@
+- 👋 Ben Raykim Official
+- 👀  Discord Bot Tasarlıyorum
+- 🌱 Yapmayı Hala Öğreniyorum
+- 💞️ Bir İş Birliğim yok
+- 📫 Discord dan ulaşın ( WuZiMu#7976 )
