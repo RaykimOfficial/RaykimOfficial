@@ -2,4 +2,4 @@
 - 👀  Discord Bot Tasarlıyorum
 - 🌱 Yapmayı Hala Öğreniyorum
 - 💞️ Bir İş Birliğim yok
-- 📫 Discord dan ulaşın ( WuZiMu#7976 )
+- 📫 Discord dan ulaşın ( Raykim Official#7976 )
